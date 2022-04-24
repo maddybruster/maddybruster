@@ -1,3 +1,3 @@
-Maddy Bruster is a graphic designer, front-end developer, and writer living and working in Brooklyn. 
+Maddy Bruster is a graphic designer and web developer. 
 Portfolio and CV available upon request.
 **maddy dot bruster at gmail dot com**
